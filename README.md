@@ -5,7 +5,7 @@ DEADRAM Was Made To Take Up Your RAM, So Yea, I Suggest If You Wanna Use This, U
 Just Run DEADRAM.bat..
 
 
-
+It's Really Just Trash Malware....
 
 
 
